@@ -12,9 +12,6 @@ Dê uma olhada nos projetos que desenvolvi, estão bem legais =}
 
 para contato:
 
-(32) 9 9814-1290
-
-Luizoc.barros@gmail.com
 
 
 <!---
